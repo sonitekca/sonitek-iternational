@@ -1,4 +1,4 @@
-sonitek-iternational
+sonitek-international
 ====================
 
 For last 10 years, Sonitek is dedicated to provide user-friendly website &amp; Mobile Apps. Whatever your requirement - Create high responsive website design, innovative mobile apps, build digital marketing strategy for website promotion - Our experienced staff effectively implements each task. Our designer &amp; developer team fulfill demands of insightful, amazing, eye-catching, stand out website design to small &amp; big business clients in entire Canada. Core values of Sonitek Company are - ensure client success, find innovative idea, touch high benchmark of excellence, quickly respond to client queries.
